@@ -7,4 +7,3 @@
 - 📫 How to reach me: Mail_Id tnskpp@gmail.com 
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: Ant's Take Rest For Around 8 Min In 12 Hour Period.
-- 
